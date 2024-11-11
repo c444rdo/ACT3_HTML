@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/9b242431-b9e0-429a-b14b-c3812cfe6cfb)# ACT3_HTML
+# ACT3_HTML
 # Martínez Estrada Ricardo / NO. de control: 1193 / 11-11-2024
 
 Actividad 1.
