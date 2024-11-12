@@ -54,3 +54,53 @@ Actividad 8.
 
 ![image](https://github.com/user-attachments/assets/017bf2bd-5703-43da-bb5d-a2b4cc6c8d57)
 ![image](https://github.com/user-attachments/assets/a17351c4-0fc0-4402-b65c-1eb6b5cba6a0)
+
+--------------------------------
+
+Actividad 9.
+
+![image](https://github.com/user-attachments/assets/9732bbe5-fdcf-4fae-89af-70ed178fc837)
+![image](https://github.com/user-attachments/assets/627ce854-31b5-41b6-a240-1a77c63f8ffb)
+![image](https://github.com/user-attachments/assets/a20e8dea-bd56-486d-9ef3-561b586821f1)
+
+--------------------------------
+
+Actividad 10.
+
+![image](https://github.com/user-attachments/assets/cf068058-99d8-4e2b-bca6-eb934c45c4fa)
+![image](https://github.com/user-attachments/assets/6338cacb-f5cd-4222-b764-b3296137828c)
+
+--------------------------------
+
+Actividad 11.
+
+![image](https://github.com/user-attachments/assets/8ef42424-0a8f-4ec2-a03a-a47bd1adfe8d)
+![image](https://github.com/user-attachments/assets/1ec82350-3bfd-4449-871c-0e48f1f1300d)
+
+--------------------------------
+
+Actividad 12.
+
+![image](https://github.com/user-attachments/assets/903fc10d-8b6c-4c5d-a8d1-946ac414c227)
+![image](https://github.com/user-attachments/assets/1fe0b021-4277-4fba-9911-80cb3c9fe19b)
+
+--------------------------------
+
+Actividad 13.
+
+![image](https://github.com/user-attachments/assets/bcc07d3a-5938-4226-95f6-d3f81db8b4a3)
+![image](https://github.com/user-attachments/assets/05f3328c-5348-46d7-b240-d244c7879722)
+
+--------------------------------
+
+Actividad 14.
+
+![image](https://github.com/user-attachments/assets/de4ecdce-4b36-45ad-8363-1821e892ea61)
+![image](https://github.com/user-attachments/assets/628ecd53-d136-402a-92f2-a342159b2888)
+
+--------------------------------
+
+Actividad 15.
+
+![image](https://github.com/user-attachments/assets/f182151f-e4cb-418b-8676-03340ad71a28)
+![image](https://github.com/user-attachments/assets/365d3911-380f-489b-b024-1f906cd9877a)
